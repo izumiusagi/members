@@ -1,27 +1,27 @@
 ![](https://pbs.twimg.com/profile_images/1741029138/KAGAYA_ce41_whitepalace_400x400.jpg)
 
-## åå‰
+## –¼‘O
 
 izumi
 <br>https://www.facebook.com/akiyoshi.izumi.33
 
-## è·æ¥­
+## E‹Æ
 
-SQLã‚¨ãƒ³ã‚¸ãƒ‹ã‚¢å…¼ï¼³ï¼¥
+SQLƒGƒ“ƒWƒjƒAŒ“‚r‚d
 
-## è‡ªå·±ç´¹ä»‹
+## Ž©ŒÈÐ‰î
 
-ãƒ˜ãƒœï¼³ï¼±ï¼¬ã‚¨ãƒ³ã‚¸ãƒ‹ã‚¢ã§ã™
-ä¾¿åˆ©å±‹ã§ç‚Žä¸Šæ¡ˆä»¶æŠ•å…¥å¤šæ•°
+ƒwƒ{‚r‚p‚kƒGƒ“ƒWƒjƒA‚Å‚·
+•Ö—˜‰®‚Å‰ŠãˆÄŒ“Š“ü‘½”
 
-## ã‚¹ã‚­ãƒ«
+## ƒXƒLƒ‹
 
-SQL/PHP/HTML/VB.NET/JAVA/JS/ASP.NET/PLï¼SQL/Linux
+SQL/PHP/HTML/VB.NET/JAVA/JS/ASP.NET/PL^SQL/Linux
 
-## ã‚„ã‚ŠãŸã„ã“ã¨
+## ‚â‚è‚½‚¢‚±‚Æ
 
-ã¤ãŽã®ï¼°ï¼ªãƒ•ã‚§ãƒ¼ã‚ºã«å‚™ãˆã¦
+‚Â‚¬‚Ì‚o‚iƒtƒF[ƒY‚É”õ‚¦‚Ä
 
-## ä¸€è¨€
+## ˆêŒ¾
 
-è‡ªåˆ†ã§ç”Ÿãã¦ã„ã‘ã‚‹ï¼³ï¼¥ã«ãªã‚‹
+Ž©•ª‚Å¶‚«‚Ä‚¢‚¯‚é‚r‚d‚É‚È‚é
